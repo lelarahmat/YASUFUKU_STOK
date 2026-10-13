@@ -1,0 +1,1 @@
+# YASUFUKU_STOK
